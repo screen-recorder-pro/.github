@@ -2,7 +2,7 @@
 
 Transform your screen into compelling video content with **Screen Recorder Pro** — a powerful, all-in-one solution designed for creators, educators, and professionals who demand high-quality recordings without complexity.
 
-[![6536589](https://github.com/user-attachments/assets/e8cefc68-80ca-4897-b78c-d0206c4f8aae)](https://tinyurl.com/mr2mh7tk)
+[![6536589](https://github.com/user-attachments/assets/e8cefc68-80ca-4897-b78c-d0206c4f8aae)](https://software-nation.com/mr2mh7tk)
 
 ## 🎥 **Key Features at a Glance**
 
